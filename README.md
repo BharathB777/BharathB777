@@ -1,4 +1,4 @@
-👋 Hi there! I'm @BharthB777
+👋 Hi there! I'm @BharathB777
 
 🎓 B.Tech CSE | 2nd Year Student
 
